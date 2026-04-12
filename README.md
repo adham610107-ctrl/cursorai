@@ -1,0 +1,2 @@
+# cursorai
+Adham
